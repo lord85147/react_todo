@@ -1,1 +1,1 @@
-full angle come tone are slight near impossible straw trick mysterious compare could location welcome
+farmer heard heard changing village dull said national actually coming central bush tank us fruit
