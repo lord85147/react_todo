@@ -1,1 +1,1 @@
-finish in include deer slept felt sudden settle gulf church manner discover oxygen rhythm perfectly
+triangle nice while pleasant himself morning column raise thrown speech worry speech sang sentence missing
