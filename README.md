@@ -1,1 +1,1 @@
-triangle nice while pleasant himself morning column raise thrown speech worry speech sang sentence missing
+crack influence operation apple reason chosen fur fort went dance flat unless proud equator snow
