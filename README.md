@@ -1,1 +1,1 @@
-you year coat jungle ability naturally magnet word massage soft score cup ancient news home
+crowd yes accept safety citizen smell everyone pile ever table planned laid weigh park noted
