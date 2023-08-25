@@ -1,1 +1,1 @@
-finger gather fat treated direct moving policeman seat stepped plane climb bowl foot darkness idea
+egg series course happen time image identity station loss satisfied hay sign bright eight believed
