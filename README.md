@@ -1,1 +1,1 @@
-explore influence doing giving possible over valuable rate dry square exclaimed steady hurt telephone somehow
+iron cream breakfast ate start finest practice mill open opposite perfect recognize dress went card
