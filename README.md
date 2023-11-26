@@ -1,1 +1,1 @@
-first beautiful animal smile average news willing to year daughter necessary sign list country provide
+curve salt twice won show globe poor goes choose sets cheese degree third taste heavy
