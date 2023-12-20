@@ -1,1 +1,1 @@
-unknown call crowd bottle exact property branch stranger settlers silver properly wind location course die
+trip blew neighbor bar mysterious bank planning castle relationship effect improve farmer unknown part partly
