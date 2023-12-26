@@ -1,1 +1,1 @@
-shoe previous certain laugh consist map giving putting arrive automobile essential field mountain round brief
+clothing cost business love hurt scared tank store luck needs acres mental private mirror mysterious
