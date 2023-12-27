@@ -1,1 +1,1 @@
-clothing cost business love hurt scared tank store luck needs acres mental private mirror mysterious
+explanation drawn sand lack tape clothing spin tone damage which force stronger sharp plate bit
