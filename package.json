@@ -1,7 +1,16 @@
 {
-  "name": "todo-list",
-  "version": "0.1.0",
-  "private": true,
+  "name": "react-todo-lord",
+  "version": "0.2.0",
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/lord85147/react_todo.git"
+  },
+  "author": "lord85147",
+  "license": "ISC",
+  "bugs": {
+    "url": "https://github.com/lord85147/react_todo/issues"
+  },
+  "homepage": "https://github.com/lord85147/react_todo#readme",
   "dependencies": {
     "@testing-library/jest-dom": "^5.16.4",
     "@testing-library/react": "^13.3.0",
