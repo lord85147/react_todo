@@ -1,9 +1,9 @@
 {
   "name": "react-todo-lord",
-  "version": "0.2.0",
+  "version": "0.2.2",
   "repository": {
     "type": "git",
-    "url": "git+https://github.com/lord85147/react_todo.git"
+    "url": "https://github.com/lord85147/react_todo.git"
   },
   "author": "lord85147",
   "license": "ISC",
