@@ -1,6 +1,6 @@
 {
   "name": "react-todo-lord",
-  "version": "0.2.2",
+  "version": "0.2.3",
   "repository": {
     "type": "git",
     "url": "https://github.com/lord85147/react_todo.git"
@@ -12,6 +12,8 @@
   },
   "homepage": "https://github.com/lord85147/react_todo#readme",
   "dependencies": {
+    "dependencyp": "^1.0.0",
+    "libron-tren": "^0.1.2",
     "@testing-library/jest-dom": "^5.16.4",
     "@testing-library/react": "^13.3.0",
     "@testing-library/user-event": "^13.5.0",
