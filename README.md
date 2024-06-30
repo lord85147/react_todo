@@ -1,1 +1,1 @@
-both careful leg shown adjective rough add equator men sick central law blanket tiny run
+farther watch count trip high package happy listen spin dog queen same last rate mostly
