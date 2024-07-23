@@ -1,1 +1,1 @@
-afternoon measure mouth seen pie settle bound pure topic weak him press stream who prize
+eye fact business also amount camera war curve smile seems rock pleasure dirty attack opinion
